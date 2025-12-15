@@ -1,6 +1,8 @@
 # DavidEpsteinAnthony
 Legally Mandated to Document Rejection Due to Acceptance Absent Documenting Rejection Constituting Conspiracy
 
+This is not actually David Anthony Bonham.
+
 Eight years of rejecting this particular group, now with Gossett and Pitt making international moves with Sutherland and Austin---under my name, attempting (with decoys, mostly) to traffic my former employer's federal fundecd government contractor property internationally---one of their last offers being, in addition to a seven hundred million dollar market manipulation, soft pornography of a pastor's wife. 
 
 Ths has not been publicly communicated, generally, but it has been sent to this particular group. 
