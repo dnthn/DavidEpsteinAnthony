@@ -3,7 +3,7 @@ Legally Mandated to Document Rejection Due to Acceptance Absent Documenting Reje
 
 This is not actually David Anthony Bonham.
 
-They have tried to make sure that I only get the jobs through them---and just like I said, they have trafficked now both medical and military data.
+They have tried to make sure that I only get the jobs through them---and just like I said, they have trafficked now both medical and military data, to Korea, as I explicitly said that they would.
 
 Eight years of rejecting this particular group, now with Gossett and Pitt making international moves with Sutherland and Austin---under my name, attempting (with decoys, mostly) to traffic my former employer's federal fundecd government contractor property internationally---one of their last offers being, in addition to a seven hundred million dollar market manipulation, soft pornography of a pastor's wife. 
 
